@@ -1,1 +1,1 @@
-https://heyzine.com/flip-book/efb9693f49.html#page/1
+https://heyzine.com/flip-book/78717162aa.html#page/1
